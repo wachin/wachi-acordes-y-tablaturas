@@ -1,1 +1,0 @@
-# wachi-acordes-y-tablaturas
